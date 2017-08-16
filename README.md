@@ -1,3 +1,4 @@
 Rodrigo Hilbert
-Selena Gomes
+Lana Del Rey
 Miley Cyrus
+Vanessa Hudgens
